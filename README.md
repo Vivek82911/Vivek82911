@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Vivek82911
 - 👀 I’m interested in web developement.
-- 🌱 I’m currently pursuing  sybsc cs
+- 🌱 I’m currently pursuing  sybsc cs from rj college
 - 💞️ I’m looking to collaborate on a Project
 - 📫 How to reach me jaiswarvivek989@gmail.com
 
